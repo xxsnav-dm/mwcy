@@ -3,7 +3,7 @@
 喵物次元是一个专注于二次元文化的在线追番网站，致力于为用户提供高质量的动漫观看体验。它以海量的动漫资源、高清的画质以及无广告的观看环境而受到动漫爱好者的喜爱。用户可以在这里找到最新热门的动漫番剧，涵盖日漫、国漫等多种类型。此外，喵物次元还提供动漫APP，支持在线观看和离线下载，方便用户随时随地享受追番的乐趣。其界面简洁，操作便捷，无论是新番还是经典老番，都能轻松找到，满足不同用户的追番需求。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/17660.html" target="_blank" ><strong>喵物次元最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanerciyuan" target="_blank" ><strong>动漫二次元影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
